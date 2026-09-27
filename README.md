@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MIEB911231HOCGLB07
+MIEB911231HOCGLB07
